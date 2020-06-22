@@ -5,3 +5,7 @@ Seit gestern steht es fest. Der Verein den es eigentlich gar nicht mehr gibt, is
 * selten erfolgreich!
 * nichts für Herzkranke!
 * zum heulen!
+
+Wie Guido Buchwald gesagt hat:
+> Der Fritz Walter und I,
+> mir sind scho a guts Trio!
