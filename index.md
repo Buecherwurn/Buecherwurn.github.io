@@ -8,6 +8,6 @@ Seit gestern steht es fest. Der Verein den es eigentlich gar nicht mehr gibt, is
 
 Wie Guido Buchwald gesagt hat:
 > Der Fritz Walter und I,
-> mir sind scho a guts Trio!
+> mir sind scho a guts Trio!!
 
 <img src="https://upload.wikimedia.org/wikipedia/de/e/e2/VfB_Stuttgart_1912-1949.jpg"/>
